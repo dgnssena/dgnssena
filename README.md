@@ -1,5 +1,5 @@
 ### Hi there 👋 I’m Sena
-### I'm a computer enginner ...
+### I'm a computer enginneer ...
 
 <!--
 **dgnssena/dgnssena** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
