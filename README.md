@@ -1,5 +1,5 @@
 ### Hi there 👋 I’m Sena
-### 📫 How to reach me: [LinkedIn] (https://www.linkedin.com/in/sena-doğan-595580198)
+### 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/sena-doğan-595580198)
 
 
 
