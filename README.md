@@ -1,4 +1,6 @@
 ### Hi there 👋 I’m Sena
+### 📫 How to reach me: https://www.linkedin.com/in/sena-doğan-595580198
+
 
 
 <!--
